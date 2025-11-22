@@ -5,6 +5,7 @@
 - 📫 How to reach me you search me on linked in link(https://www.linkedin.com/in/abhay-raj-650905268/) and on instagram too abhay__3051
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Starting this coding journey is an basically an unusual experience but its way intresting and right now i am in a very good position to conquere any real world problem
+- SIH 2025 Grand Finale
 - finalist of NASA-Noida-Space Edition Hackathon 2025.
 - Finalist Odoo x Hackathon.
 
